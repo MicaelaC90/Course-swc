@@ -2,8 +2,7 @@
 
 ## Ingredients
 Onion
-Avocado
-
+Lime
 
 
 ## Instructions
